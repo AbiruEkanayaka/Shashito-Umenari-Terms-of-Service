@@ -18,4 +18,4 @@ By using the Shashito Umenari Discord bot, you agree to the following terms:
 
 8. **Entire Agreement**: These terms constitute the entire agreement between you and us regarding your use of the chatbot and supersede all prior agreements and understandings.
 
-If you have any questions or concerns regarding these terms, please contact us at support@vortexai.org.
+If you have any questions or concerns regarding these terms, please contact us at abiruekanayaka5@gmail.com.
